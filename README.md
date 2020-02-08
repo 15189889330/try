@@ -1,2 +1,2 @@
 # try
-first use
+first use 不太会用 请见谅哈
